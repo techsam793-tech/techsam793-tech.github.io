@@ -1,2 +1,2 @@
-# techsam793.github.io
+# techsam793tech.github.io
 edumath and technical 
